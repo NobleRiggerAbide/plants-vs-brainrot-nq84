@@ -1,4 +1,4 @@
-#  
+#  advanced Script for plants vs brainrots offers the most advanced plants vs brainrots Script, with god mode and fly. Perfect for dominating any match.
 
 
 
